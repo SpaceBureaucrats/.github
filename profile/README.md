@@ -2,7 +2,7 @@
 
 Our path is harder than ever, we don't have what many others have, but this only makes us stronger. The main thing is to believe in a bright future while serving our cause.
 <br>
-This is not just organization, its equal to the life itself. Its not about fight with others, its about fighting yourself.
+This is not just organization, its equal to the life itself. Its not about fighting with others, its about fighting yourself.
 <!--
 
 **Here are some ideas to get you started:**
