@@ -1,6 +1,7 @@
 ## Space Bureaucrats
 
 Our path is harder than ever, we don't have what many others have, but this only makes us stronger. The main thing is to believe in a bright future while serving our cause.
+This is not just organization, its equal to the life itself.
 
 <!--
 
