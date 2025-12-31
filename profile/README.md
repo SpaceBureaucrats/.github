@@ -12,7 +12,7 @@ Life is unfair, but also it is very unexpected, where each day could happen anyt
 <br><br>
 I hope we will achieve success, where during our long and hard path, we will meet a lot of great people, who will become our friends, closest mates, or a person who you will live for rest of your life and die together; And I am not just talking about work, this includes our simple life.
 <br>
-_I send my regards to 4 of them (P.A.M.A.), the most important one, who helped me this year whether it was moraly, physicly or they helped straighten my path and remember who I actually am. But thats just the most important ones, where I did not include lots of people who were helping me each day year long._ 
+_I send my regards to 4 of them (P.A.M.A.), who I all talked to recently in time from Christmas to a New Year, who became most important ones, helping me this year whether it was moraly, physicly or they helped straighten my path and remember who I actually am. But thats just the most important ones, where I did not include lots of people who were helping me each day year long._ 
 <br><br>
 Don't be silent, talk. Loneliness kills you from inside.
 <br><br>
