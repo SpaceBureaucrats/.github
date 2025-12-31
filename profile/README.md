@@ -1,6 +1,7 @@
 ## Space Bureaucrats
 
-2025.12.31
+<b>2025.12.31</b>
+<br>
 Our path is harder than ever, we don't have what many others have, but this only makes us stronger, the most important thing is not fall under the great pressure and escape checkmate position. We believe in a bright future while serving our cause.
 <br>
 Many people see one thing, but they are not aware of what is actually happening.
