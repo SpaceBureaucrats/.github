@@ -10,7 +10,7 @@ This is not just organization, its equal to the life style itself. Its not about
 <br>
 Life is unfair, but also it is very unexpected, where each day could happen anything, value your time and use it as it would be your last hour.
 <br><br>
-I hope we will achieve success, where during our long and hard path, we will meet a lot of great people, who will become our friends, closest mates, or a person who you will live for rest of your life and die together; And I am not just talking about work, this includes our simple life. _I am proud that I reckognized 4 of them_.
+I hope we will achieve success, where during our long and hard path, we will meet a lot of great people, who will become our friends, closest mates, or a person who you will live for rest of your life and die together; And I am not just talking about work, this includes our simple life. _I send my regards to 4 of them_.
 <br>
 Don't be silent, talk. Loneliness kills you from inside.
 <br><br>
