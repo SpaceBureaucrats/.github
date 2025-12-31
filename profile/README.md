@@ -1,5 +1,4 @@
 ## Space Bureaucrats
-<hl>
 
 **2025.12.31** — Organization Moral
 <br><br>
