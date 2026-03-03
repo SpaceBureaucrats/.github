@@ -7,4 +7,6 @@ Every day it is another fight for us, where we fight ourself, in order to become
 <br>
 While others are handed everything they didn’t earn, we’ll earn it ourselves — because of who we are. Hard work always pays off.
 <br>
+<br>
+<br>
 *From the bottom to the stars, time to write our own history.*
