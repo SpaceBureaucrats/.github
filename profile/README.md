@@ -9,7 +9,7 @@ While others are handed everything they didn’t earn, we’ll earn it ourselves
 ## ⚜️ Key Principles
 * Be high moral: you don’t have to be a knight, but don’t be a jerk
 * Don’t compare yourself: comparison to other one of the fastest ways to destroy yourself, focus on yourself
-* Mistakes aren’t bad — refusing to fix them is.
+* Mistakes aren’t bad — refusing to fix them is
 * Don't be stingy, the miser pays twice
 <br>
 <br>
