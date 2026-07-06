@@ -7,7 +7,7 @@ Every day it is another fight for us, where we fight ourself, in order to become
 <br>
 While others are handed everything they didn’t earn, we’ll earn it ourselves — because of who we are. Hard work always pays off.
 <br>
-Never let others to deatroy or elipse your dreams.
+Never let others to destroy or ellipse your dreams.
 ## ⚜️ Key Principles
 * Be high moral: you don’t have to be a knight, but don’t be a jerk
 * Don’t compare yourself: comparison to other one of the fastest ways to destroy yourself, focus on yourself
